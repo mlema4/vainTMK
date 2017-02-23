@@ -1,1 +1,1 @@
-manny is dumb lol haha
+It's not pants, it's pantalons.
